@@ -1,5 +1,5 @@
 # Arsal Umer Shami
-UC San Diego, AI (CS), '30.
+US Citizen, UC San Diego, AI (CS), '30.
 
 # "Experience"
 
